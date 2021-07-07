@@ -1,3 +1,3 @@
 # >whoami
-
-![0001](https://user-images.githubusercontent.com/22853419/124367097-1823ca00-dc5d-11eb-9a4f-54cb099e78d4.jpg)
+![CV-1](https://user-images.githubusercontent.com/22853419/124766202-5f50da00-df3f-11eb-8b01-cb75bc0109d2.png)
+![CV-2](https://user-images.githubusercontent.com/22853419/124766209-60820700-df3f-11eb-8ec6-61ee4d2a394a.png)
